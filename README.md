@@ -1,1 +1,1 @@
-Joshua full stack programmer
+joshua full stack programmer
